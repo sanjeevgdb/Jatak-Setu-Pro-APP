@@ -1,2 +1,2 @@
-# Kundli-Setu-Pro-APP
-Kundli Setu Pro App Download Link
+# Jatak-Setu-Pro-APP
+Jatak Setu Pro App Download Link
